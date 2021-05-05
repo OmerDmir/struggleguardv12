@@ -1,1 +1,0 @@
-# struggleguardv12
